@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **chandra21kishan@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1l9VwYb7_onrxqSm_hd2WPs_1G0PApzj1/view?usp=sharing](https://drive.google.com/file/d/1l9VwYb7_onrxqSm_hd2WPs_1G0PApzj1/view?usp=sharing)
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
